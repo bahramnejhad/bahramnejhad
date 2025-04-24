@@ -1,7 +1,7 @@
 Hi 👋 My name is Reza Bahramnejhad
 ===============================
 
-Developer, Trader &
+Developer, Trader & Investor
 -----------------------------
 
 * 🌍  I'm based in Kerman, Iran
